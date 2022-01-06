@@ -1,5 +1,6 @@
-![E3qmBmfIXkMKTMPuqF_JfkMKrWxGNoDCXJx8Wuti7dQ](https://user-images.githubusercontent.com/11124303/148409062-8137f958-85c1-4662-8307-4e4c9e881f0b.jpg)
 
+
+![Copy of HypeRayy](https://user-images.githubusercontent.com/11124303/148409526-bb39adb5-b618-43b9-8036-005592f7178f.png)
 
 ### Hi there 👋
 
