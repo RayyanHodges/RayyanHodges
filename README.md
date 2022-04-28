@@ -15,6 +15,6 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about: Games, Computers, Art
 - 📫 How to reach me: The contact information provided in my github bio :)
-- 😄 Pronouns: he/they
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I LOVE cheese.
 
