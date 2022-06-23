@@ -13,5 +13,4 @@
 - 💬 Ask me about: Games, Computers, Art, any modern TV show.
 - 📫 How to reach me: The contact information provided in my github bio.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I LOVE cheese.
-
+- ⚡ Fun fact:
